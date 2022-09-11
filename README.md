@@ -1,0 +1,1 @@
+https://morozov-artyom.github.io/rsschool-cv/cv
